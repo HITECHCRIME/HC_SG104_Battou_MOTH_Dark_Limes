@@ -28,10 +28,14 @@ putas
 
 explotar el tarro
 dond-e-stan im-plantes en mi (de) cerebro, mal cableados
-que te va?, cuantos veces
+que te va?, cuántas veces
 tengo mi palabra de seguridad
 parces, mas
 pero la firma de la herramienta expiró
+
+beep beep beep beep beep be.... (cut off)
+muñecas de barro (GROWL DROP)
+Pongo una bomba en El carro (GROWL DROP)
 
 ```
 
