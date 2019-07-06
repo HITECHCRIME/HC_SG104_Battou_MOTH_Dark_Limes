@@ -47,6 +47,7 @@ muñecas de barro
 pongo una bomba en El carro 
 (ya + background screams)
 
+Hi tech
 La puta cyborg es parte de un aquelarre
 Soy Dante
 Con balas infinitas ready para darte
