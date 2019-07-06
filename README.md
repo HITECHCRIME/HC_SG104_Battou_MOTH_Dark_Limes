@@ -28,7 +28,7 @@ putas
 
 explotar el tarro
 dond-e-stan im-plantes en mi (de) cerebro, mal cableados
-que te va?, cuántas veces
+que te va?, cuántas putas veces
 tengo mi palabra de seguridad
 parces, mas
 pero la firma de la herramienta expiró
