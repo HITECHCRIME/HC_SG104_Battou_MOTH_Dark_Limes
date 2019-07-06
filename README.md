@@ -1,5 +1,5 @@
 ![](mandrax2.jpg)
-COVER
+ART COVER
 
 # Battousaigang x MOTHNODE_ Dark Limes
 
@@ -7,9 +7,9 @@ COVER
 
 ## Data
 
-Song by Monki, Satsu and MOTHNODE.
+Cyberpunk Gore song by Monki, Satsu and MOTHNODE.
 
-**Title:** Dark Limes | **Featuring:** Battousaigang (Monki, Satsugai), MOTHNODE
+**Title:** Dark Limes? | **Featuring:** Battousaigang (Monki, Satsugai), MOTHNODE
 
 **Production:** Monki | **Lyrics:** Monki, Satsugai, MOTHNODE
 
