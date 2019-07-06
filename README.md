@@ -26,8 +26,12 @@ el demonio electronico
 putas
 
 
-explotar el taRRo
-
+explotar el tarro
+dond-e-stan im-plantes en mi (de) cerebro, mal cableados
+que te va?, cuantos veces
+tengo mi palabra de seguridad
+parces, mas
+pero la firma de la herramienta expiró
 
 ```
 
