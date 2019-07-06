@@ -30,7 +30,7 @@ con la papiroflexia
 cerberus
 toda la caballeria
 invoncamos a la bestia
-todaa Las Perras domesticadas
+todaa Las perras domesticadas
 yo tengo a exodia
 por si alguien Me irradia
 lo mando pa la puta mierda
