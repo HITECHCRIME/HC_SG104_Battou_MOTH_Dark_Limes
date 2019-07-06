@@ -35,7 +35,7 @@ yo tengo a exodia
 por si alguien Me irradia
 lo mando pa la puta mierda
 no te van a encontrar en la morgue
-no se nadie te VA a reconocer
+no se nadie te va a reconocer
 solo veran tu video en la deep web
 que bien que saliste
 y Al final Como quedaste
