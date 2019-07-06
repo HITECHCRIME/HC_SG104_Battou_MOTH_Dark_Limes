@@ -6,7 +6,7 @@
 
 ## Data
 
-Part of Battousaigxng's 'Mandrax' EP. Song by Monki, Satsu and MOTHNODE.
+Song by Monki, Satsu and MOTHNODE.
 
 **Title:** Dark Limes | **Featuring:** Battousaigang (Monki, Satsugai), MOTHNODE
 
