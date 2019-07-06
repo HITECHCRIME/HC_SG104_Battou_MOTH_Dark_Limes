@@ -47,30 +47,20 @@ muñecas de barro
 pongo una bomba en El carro 
 (ya + background screams)
 
-black 
-suena mientras escribo rap
-pero yo no soy rapero
-soy santero
-vivo en el matadero
-no vengo del moridero
-cazando rateros
-hasta que mueran
-en su totalidad
-hoy el parcero
-con la papiroflexia
-cerberus
-toda la caballeria
-invoncamos a la bestia
-todaa Las perras domesticadas
-yo tengo a exodia
-por si alguien Me irradia
-lo mando pa la puta mierda
-no te van a encontrar en la morgue
-no se nadie te va a reconocer
-solo veran tu video en la deep web
-que bien que saliste
-y Al final Como quedaste
-pero me han pillado ya
+La puta cyborg es parte de un aquelarre
+Soy Dante
+Con balas infinitas ready para darte
+Llegan con estandartes
+Toda la escoria se endemonia
+Por q tienen hambre
+Con partes roboticas
+Soy la unidad errante
+Los decapito facil con mi sable laser
+Somos parte de un enjambre
+Androide maniacos
+Como 3 paracos 
+Gore gore power rangers
+Alias metapod
 
 ```
 
