@@ -20,7 +20,7 @@ black
 suena mientras escribo rap
 pero yo no soy rapero
 soy santero
-vivo en El matadero
+vivo en el matadero
 no vengo del moridero
 cazando rateros
 hasta que mueran
