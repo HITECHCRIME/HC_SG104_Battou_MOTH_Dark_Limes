@@ -1,4 +1,5 @@
 ![](mandrax2.jpg)
+COVER
 
 # Battousaigang x MOTHNODE_ Dark Limes
 
