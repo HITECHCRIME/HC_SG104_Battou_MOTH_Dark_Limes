@@ -50,7 +50,7 @@ parces, mas, pero la
 firma de la herramienta expiró
 oxido 
 muñecas de barro
-pongo una bomba en El carro
+pongo una bomba en el carro
 muñecas de barro
 pongo una bomba en El carro 
 (ya + background screams)
