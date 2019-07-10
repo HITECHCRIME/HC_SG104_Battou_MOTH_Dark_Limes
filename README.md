@@ -9,7 +9,7 @@ ART COVER
 
 Cyberpunk Gore song by Monki, Satsu and MOTHNODE.
 
-**Title:** Dark Limes? | **Featuring:** Battousaigang (Monki, Satsugai), MOTHNODE
+**Title:** Dark Limes | **Featuring:** Battousaigang (Monki, Satsugai), MOTHNODE
 
 **Production:** Monki | **Lyrics:** Monki, Satsugai, MOTHNODE
 
